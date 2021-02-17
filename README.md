@@ -1,2 +1,0 @@
-# computer
-basket ball training 
